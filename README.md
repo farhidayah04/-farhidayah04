@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **farhidayah19@gmail.com**
 
-- ⚡ Fun fact **i like eata**
+- ⚡ Fun fact **i like eat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
